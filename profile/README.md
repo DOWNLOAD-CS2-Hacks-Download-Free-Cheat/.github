@@ -1,4 +1,4 @@
-# *+*!> DOWNLOAD— CS2 Hacks Download Free Cheat Counter-Strike 2 Hack 2024[2025]
+# *+*!> DOWNLOAD— CS2 Hacks Download Free Cheat Counter-Strike 2 Hack 2024 [2025]
 
 CS2 Hacks Download Free Cheat CS 2 Hack 2024 Whether you're a seasoned veteran or a beginner, this hack will level up your gameplay and help you achieve victory in every match.
 
